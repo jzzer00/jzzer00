@@ -1,6 +1,6 @@
--   <a href="https://space.bilibili.com/10961143?spm_id_from=333.337.0.0"><code><img height="768" width="1024" src="./images/to the moon.png"></code></a>
-
 <div align="center">
+
+<a href="https://space.bilibili.com/10961143?spm_id_from=333.337.0.0"><code><img height="384" width="512" src="./images/to the moon.png"></code></a>
 
 ## 京仄Pluck
 
