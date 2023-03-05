@@ -1,12 +1,11 @@
-<img align="right" src="https://count.getloli.com/get/@:Minori-ty?theme=rule34">
+[![](to the moon.PNG
+)](https://lolicon.app)
+
+<div align="center">
 
 ## 京仄Pluck
 
 清纯男大
-
-[![](to the moon.PNG)](https://space.bilibili.com/10961143?spm_id_from=333.337.0.0)
-
-<div align="center">
 
 ### **社交主页：**
 
